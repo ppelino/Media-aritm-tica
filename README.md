@@ -1,0 +1,2 @@
+# Media-aritm-tica
+média
